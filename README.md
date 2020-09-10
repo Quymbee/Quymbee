@@ -4,7 +4,7 @@ Hi, I'm Quymbee :wave:  and I love writing code!
 
 ## 👩🏻‍💻 how I work
 Adaptively and creatively with a smile :blush:
-I find that a positive attitude can go a long way in any workplace. My motivation is to always be learning and on time — it's sometimes hard to do both, but I try :upside_down_face: checklists and trellos are definitely my friends!
+I find that a positive attitude can go a long way in any workplace. My motivation is to always be learning and on time — it's sometimes hard to do both, but I try :upside_down_face: checklists and trellos are definitely my friends! When I code, my mindset is to 'leave it better than you found it', so I am a proactive and communicative team member.
 
 ## :coffee:  wanna chat ?
 
